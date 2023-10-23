@@ -1,0 +1,1 @@
+Nå klarer jeg å forstå mer av Github
